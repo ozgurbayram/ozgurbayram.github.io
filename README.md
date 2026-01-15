@@ -1,1 +1,0 @@
-# ozgurbayram.github.io
